@@ -1,2 +1,2 @@
 # Vibrador
-Vibrador sex toy
+Vibrador sex toy.
